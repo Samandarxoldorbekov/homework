@@ -1,0 +1,2 @@
+# homework
+Xoldorbekov Samandar
